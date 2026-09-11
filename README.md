@@ -1,1 +1,1 @@
-# danielle-aicource
+# danielle-aicourse
